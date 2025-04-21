@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @micky285
+- 👋 Hi, I’m Eliuas Micky
 - 👀 I’m interested in web development 
 - 📫 How to reach me @ whatsapp -0716730276
 
